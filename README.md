@@ -1,1 +1,1 @@
-# modpack-diyebilitmiyiz-usta
+# modpack-diyebilirmiyiz-usta
