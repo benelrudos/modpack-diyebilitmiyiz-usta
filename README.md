@@ -1,1 +1,0 @@
-# modpack-diyebilirmiyiz-usta
